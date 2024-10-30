@@ -4,4 +4,4 @@
 
 All the code in these repos was created and explained by Urufu Iriamu on the main YouTube channel (Deleted).
 
-To find out more please visit:
+Lost file
